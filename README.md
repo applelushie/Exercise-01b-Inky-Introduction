@@ -6,4 +6,4 @@ Ella Beihold
 
 My github username is:
 
-applelushos
+applelushie
